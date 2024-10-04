@@ -1,0 +1,1 @@
+# temel-geometrik-kavramlar-acilar-ve-ucgenler-32
